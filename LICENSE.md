@@ -1,4 +1,4 @@
-#  
+#  shrink for brainrots Scripts automatic offers the most advanced shrink for brainrots Script, with custom skins and silent aim. Perfect for dominating
 
 
 
